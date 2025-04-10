@@ -1,5 +1,5 @@
 # NameSilo Coupon Codes 2025 | Exclusive Discounts &amp; $1 Domains
-# **NameSilo Coupon Codes 2025 - Exclusive Discounts & $1 Domains**
+ **NameSilo Coupon Codes 2025 - Exclusive Discounts & $1 Domains**
 
 Looking for **cheap domain names** and **affordable web hosting**? NameSilo offers **exclusive promo codes** with **discounts up to 50%** on domains, hosting, and security products. This **2025 guide** covers all active coupons, how to redeem them, and why NameSilo is a top choice for domain registration.
 
